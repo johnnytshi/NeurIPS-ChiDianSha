@@ -20,6 +20,9 @@
 * [Liuyishou Hotpot Robson](https://goo.gl/maps/zJic6FnkhQb8D9rt5): 刘一手
 * [Unchai Restaurant](https://g.page/unchairestaurant?share): 好吃的泰国菜，比较忙
 * [HK BBQ Master](https://g.page/HKbbqMaster?share): 叉烧饭，Netflix有介绍过
+* [Zabu Chicken](https://goo.gl/maps/GwRbbqT94ydoHgVs9): 吃韩国炸鸡喝啤酒
+* [Sura Korean Royal Cuisine Restaurant Vancouver](https://goo.gl/maps/c9DB24xWR87GJADT8): 韩国菜
+* [Guu Original Thurlow](https://goo.gl/maps/SidJWnw7GzTVHKk77): 日本居酒屋
 * 除此之外，在Richmond的**Alexandra Road**基本上是美食一条街
 
 # 早茶
